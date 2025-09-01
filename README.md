@@ -6,7 +6,7 @@
 - Minor: Digital Studies
 
  **Fun fact** 
- My family has a clown fish that is currently 22 years old
+ My family owns a clown fish that is currently 22 years old. 🐟👨‍🦳
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
