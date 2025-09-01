@@ -1,6 +1,7 @@
 ## Hi there 👋
 
 **Overview** 
+
 - Senior at James Madison University
 - Major: SMAD (School of Media Arts and Design), Digital Video and Cinema 
 Minor: Digital Studies
