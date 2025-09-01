@@ -2,7 +2,7 @@
 
 **Overview** 
 
-- Major: Bachelor of Science in Media Arts and Design, Digital Video and Cinema
+- Major: School of Media Arts and Design, Digital Video and Cinema
 - Minor: Digital Studies
 
 <h3 align="left">Connect with me:</h3>
