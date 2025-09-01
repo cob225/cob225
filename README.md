@@ -2,7 +2,7 @@
 
 **Overview** 
 
-- Major: School of Media Arts and Design, Digital Video and Cinema
+- Major: School of Media Arts and Design, Concentration in Digital Video and Cinema
 - Minor: Digital Studies
 
  **Fun fact** 
